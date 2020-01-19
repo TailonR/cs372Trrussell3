@@ -6,3 +6,4 @@ Will what? You haven't said anything yet
 Sorry, (this is text-from computer)I was buffering, anyway, I said I will not answer.
 Did that hurt
  It most certainly did-she said from computer.
+You know I have to say, you guys seem very disfunctional-said the birdie on the third branch.
