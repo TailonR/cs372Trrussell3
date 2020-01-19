@@ -5,3 +5,4 @@ Eventually some day down the line when you call I will
 Will what? You haven't said anything yet
 Sorry, (this is text-from computer)I was buffering, anyway, I said I will not answer.
 Did that hurt
+ It most certainly did-she said from computer.
