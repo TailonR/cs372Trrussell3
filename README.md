@@ -7,3 +7,4 @@ Sorry, (this is text-from computer)I was buffering, anyway, I said I will not an
 Did that hurt
  It most certainly did-she said from computer.
 You know I have to say, you guys seem very disfunctional-said the birdie on the third branch.
+I guess I'm not done talking yet - third branch birdie
