@@ -10,3 +10,5 @@ You know I have to say, you guys seem very disfunctional-said the birdie on the 
 I guess I'm not done talking yet - third branch birdie
 Oh yes you are, It's my turn .... - silence falls on the second branch birdie
 Finally, I got it, to be or not to be...Wait what was the question? - second branch birdie
+Holy hell, something see off here - third branch birdie
+Does anyone know what the second birdie is doing? - third branch birdie
